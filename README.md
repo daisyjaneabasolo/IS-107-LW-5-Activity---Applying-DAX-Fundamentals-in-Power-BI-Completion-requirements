@@ -1,0 +1,1 @@
+# IS-107-LW-5-Activity---Applying-DAX-Fundamentals-in-Power-BI-Completion-requirements
